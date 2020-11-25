@@ -1,1 +1,1 @@
-compito per il 26
+COMPITO PER IL 26
